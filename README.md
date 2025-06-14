@@ -1,1 +1,0 @@
-# Zero_Carbon_Challenge
